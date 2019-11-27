@@ -6,10 +6,10 @@ Les couleurs dans les chansons de Bashung
 
 ## Douane Eddy
 
-Elle passe la douane avec Eddy
-Je prends soin du canari
-Je noie le poisson rouge deux fois par jour
-Il te reste fidèle
+Elle passe la douane avec Eddy  
+Je prends soin du canari  
+Je noie le poisson rouge deux fois par jour  
+Il te reste fidèle  
 Joyeux Nobel et encore bananier
 
 ## La Chanson Du Loup
